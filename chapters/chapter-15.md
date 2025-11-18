@@ -1,6 +1,6 @@
 # Chapter 15: Admitting What Matters
 
-The afternoon after my conversation with Pa, Audrey found me at the creek. I was sitting on the bank, throwing rocks into the water harder than necessary, my mind still spinning from everything that had happened, everything I'd said, everything Pa had said back.
+The afternoon after my conversation with Pa, Audrey found me at the creek. I was sitting on the bank, throwing rocks into the water harder than necessary, my mind still spinning from everything that had happened, everything I'd said, everything Pa had thrown back at me.
 
 She didn't say anything at first. Just sat down beside me and waited, patient as always.
 
@@ -8,29 +8,49 @@ Finally, I threw one more rock and watched it skip twice before sinking.
 
 "I talked to him," I said.
 
-"I know. He called my dad. Mentioned that you two had a good conversation."
+"I figured. You've got that look."
 
-That surprised me. "He did?"
+"What look?"
 
-"Yeah. Said he was proud of you. That it took real courage to be that honest."
+"Like you tried something that mattered and it didn't work out the way you hoped." She picked up her own rock, turned it over in her hand. "What happened?"
 
-The words hit me different than I expected. Not the approval I'd been chasing—something deeper. Recognition. Respect.
+I threw another rock, harder this time. "Exactly what I was afraid would happen. I tried to tell him about the research, about being interested in sustainable farming, about wanting to find a way to work the farm that honors tradition while implementing innovation. And he shut me down. Said I was just looking for shortcuts, trying to prove I'm smarter than him, playing at farming instead of actually committing."
 
-"I don't feel courageous," I admitted. "I feel scared out of my mind."
+"I'm sorry."
 
-"Of what?"
+"Don't be. I should've known better." I picked up another rock, felt the weight of it in my palm. "Five years of the same fight, and I thought one conversation would magically fix everything. That was stupid."
 
-I picked up another rock, turned it over in my hand. Smooth from years in the creek, worn down by water and time. "Of caring. Of admitting that this matters to me. The farm, my dad's opinion, making this work. For five years I've been pretending not to care because not caring felt safe. Can't be disappointed if you don't have expectations, right?"
+"It wasn't stupid to try."
 
-"But you do care."
+"Feels stupid. Feels like I exposed myself for nothing."
+
+Audrey was quiet for a moment. Then she said, "If it didn't matter to you—what your dad thinks, whether he listens—you wouldn't be sitting here throwing rocks like you're trying to hurt them. So what's really bothering you?"
+
+The question cut too close. I threw another rock, watched it disappear into the creek with a splash.
+
+"Wade."
+
+"What?"
+
+"Talk to me. Really talk, not the defensive version."
+
+I stopped, rock in hand, and just sat there. The creek flowed past, constant and indifferent. The July heat made everything shimmer. And I felt the truth pressing against my chest like I'd been holding my breath for too long.
+
+"I care," I finally said, the words rough. "That's what bothers me. I care what he thinks. I care about the farm and the legacy and proving I can do this. And I hate that I care because caring makes me vulnerable to exactly this kind of hurt."
+
+"Vulnerable how?"
+
+"If I didn't care what my dad thought, his disappointment would be meaningless. Just noise. But I do care, and that means he can hurt me. That means when I try to be honest and he shuts me down, it actually matters." I threw the rock, watched it skip once before sinking. "For five years I've been pretending not to care because not caring felt safe. Can't be disappointed if you don't have expectations, right?"
+
+"But you do have expectations."
 
 "Yeah." The admission felt like ripping off a bandage. "I care so much it terrifies me. I care what my dad thinks. I care about the farm and the legacy and proving I can do this differently while still honoring what came before. I care about not failing, about not letting him down again, about actually being the son he—"
 
-My voice broke. I stopped, threw the rock harder than intended. It hit the water with a splash that sent ripples spreading outward.
+My voice broke. I stopped, threw another rock harder than I meant. It hit the water with a splash that sent ripples spreading outward.
 
 Audrey didn't say anything. Just waited.
 
-"When Ma died," I finally continued, voice rough, "I felt like I lost the only person who believed in me no matter what. Pa was so buried in grief and work, and I was just this angry kid who couldn't do anything right. For five years I've been fighting to not care because caring meant being vulnerable to that kind of loss again."
+"When Ma died," I finally continued, voice rough, "I felt like I lost the only person who believed in me no matter what. Pa was so buried in grief and work, and I was just this angry kid who couldn't do anything right. For five years I've been fighting to not care because caring meant being vulnerable to that kind of loss again, that kind of disappointment."
 
 "But you can't not care. It's not who you are."
 
@@ -52,7 +72,7 @@ I looked at her. "When'd you get so wise?"
 
 We sat in silence, the creek flowing past, carrying water that had been flowing past this same spot for a hundred years, would keep flowing for a hundred more. Constant motion, constant change, but the creek remained.
 
-"I'm at the point of no return, aren't I?" I said. "I've admitted I want this. Told my dad I'm staying. Started making plans. I can't go back to safe rebellion now."
+"I'm at the point of no return, aren't I?" I said. "I've admitted I care. Started researching, started planning, started hoping. Even though my dad rejected my first attempt, I can't go back to safe rebellion now. I'm in too deep."
 
 "Do you want to go back?"
 
@@ -72,9 +92,9 @@ But now?
 
 Audrey smiled. "You can. You've been flying for weeks now, you just didn't realize it because you were so focused on the falling."
 
-Maybe she was right. All the research I'd been doing, the conversations with Mr. Palmer, the honest talks with Pa—maybe that was flying. Maybe choosing and trying and caring was what courage looked like, even when it felt like falling.
+Maybe she was right. All the research I'd been doing, the conversations with Mr. Palmer, the honest attempt at talking to Pa even though it failed—maybe that was flying. Maybe choosing and trying and caring was what courage looked like, even when it felt like falling.
 
-"This is the midpoint, isn't it?" I said. "Not of summer, but of... everything. Of figuring out who I am. I can't go back to not caring now. I'm in too deep."
+"This is the midpoint, isn't it?" I said. "Not of summer, but of... everything. Of figuring out who I am. I've admitted I care, admitted I want this. Can't go back to not caring now. I'm in too deep."
 
 "Is that bad?"
 
@@ -82,7 +102,7 @@ Maybe she was right. All the research I'd been doing, the conversations with Mr.
 
 "Everything already changed. You just admitted it to yourself."
 
-We sat there throwing rocks, and I let myself feel everything I'd been running from. The fear of disappointing Pa. The hope that maybe I could do this. The desperate want to prove myself. The vulnerability of caring when caring meant risking everything.
+We sat there throwing rocks, and I let myself feel everything I'd been running from. The fear of disappointing Pa. The hope that maybe I could do this anyway. The desperate want to prove myself. The vulnerability of caring when caring meant risking everything, even rejection.
 
 It hurt. But it also felt real in a way nothing had felt in five years.
 
@@ -90,7 +110,7 @@ It hurt. But it also felt real in a way nothing had felt in five years.
 
 "Always."
 
-"I'm not doing this for you. The changes, the research, staying on the farm. I thought maybe I was, at first. But I'm not. I'm doing it for me."
+"I'm not doing this for you. The changes, the research, wanting to stay on the farm. I thought maybe I was, at first. But I'm not. I'm doing it for me."
 
 "I know."
 
@@ -104,7 +124,7 @@ It hurt. But it also felt real in a way nothing had felt in five years.
 
 That felt true. Truer than anything I'd admitted to myself.
 
-"So this is it," I said. "The point where I stop running and start building."
+"So this is it," I said. "The point where I stop running and start building. Even if my dad doesn't believe in it yet."
 
 "If you want it to be."
 
@@ -114,7 +134,7 @@ That felt true. Truer than anything I'd admitted to myself.
 
 "Where are we going?"
 
-"Back to the farm. You've got work to do, plans to make, a future to build. And I want to see you do it."
+"Back to reality. You've got work to do, plans to make, a future to build. And the fact that your dad rejected your first attempt doesn't change any of that."
 
 I took her hand and let her pull me up. We walked back through the Georgia afternoon, the July heat making everything shimmer, and I thought about what came next.
 
@@ -130,13 +150,13 @@ And for the first time in five years, I was ready to be courageous.
 
 That night, lying in bed, I thought about Ma. What would she think of all this? Of me finally choosing instead of just rejecting, engaging instead of just rebelling?
 
-I thought she'd be proud. Not because I was becoming exactly what anyone wanted, but because I was figuring out what I wanted and choosing it even when it scared me.
+I thought she'd be proud. Not because I was becoming exactly what anyone wanted, but because I was figuring out what I wanted and choosing it even when it scared me, even when the first attempt had failed.
 
 Audrey had said once that my mom would be proud of me for being honest. I hadn't believed her then.
 
 But maybe I was starting to now.
 
-I'd admitted what mattered. To Pa, to Audrey, to myself. The farm. The legacy. The relationship with my father that I'd spent five years pretending didn't matter while it tore me apart that it did.
+I'd admitted what mattered. To Audrey, to myself. The farm. The legacy. The relationship with my father that I'd spent five years pretending didn't matter while it tore me apart that it did.
 
 I cared. About all of it. And that made me vulnerable in ways I'd spent half my life trying to avoid.
 
@@ -152,8 +172,8 @@ But tonight, I let myself just feel it. The fear and the hope and the terrifying
 
 I could be Wade Turner, fourth-generation farmer, innovator, problem-solver, son.
 
-Not despite my rebellion, but because of what I'd learned from it.
+Not despite my rejection, but because of what I'd learned from it.
 
 And that was worth every scary, vulnerable, courageous step ahead.
 
-**Word count: 1,564**
+**Word count: 1,699**
